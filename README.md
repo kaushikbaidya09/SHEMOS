@@ -1,1 +1,1 @@
-# [SHEMOS](https://github.com/kaushikbaidya09/SHEMOS/wiki)]
+# [SHEMOS](https://github.com/kaushikbaidya09/SHEMOS/wiki)
